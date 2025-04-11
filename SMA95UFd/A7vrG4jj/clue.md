@@ -1,1 +1,1 @@
-[Click here for your clue](https://tinyurl.com/r4y25sdt)
+[Click here for your clue](https://tinyurl.com/yn8hhrw4)
